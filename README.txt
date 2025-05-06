@@ -1,3 +1,2 @@
 Prakit Aroonkitcharoen(Tor)
-
-Tor
+Silpakorn university
